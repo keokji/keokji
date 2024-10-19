@@ -1,3 +1,3 @@
-Talk to me about my fandoms, cosplaying or art :]
+Talk to me about my fandoms :]
 
 
